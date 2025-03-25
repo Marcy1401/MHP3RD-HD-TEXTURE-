@@ -1,1 +1,0 @@
-# MHP3RD-HD-TEXTURE-
